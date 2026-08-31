@@ -12,6 +12,6 @@ I'm passionate about women in STEM and love connecting with others building in t
 
 ## Fun Facts
 
-- Gym is basically part of my routine at this point
+- Gym is part of my identity at this point
 - Always looking for new music
-- Hobbies: creative projects, whatever form they take that week
+- Hobbies: creative projects, whatever form they take
